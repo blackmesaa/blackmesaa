@@ -7,7 +7,7 @@ stuff like that 😉
 
 DNC — do not copy my ponies, inspo is okay as long as if its minor
 
-13- — I prefer to not talk to 13 year olds as i am 15 myself🥲
+13- — I prefer to not talk to 13 year olds or younger as i am 15 myself🥲
 
 Roblox fandoms — alot of you guys are really strange but i shouldnt be saying anything . . you all are on thin ice
 
