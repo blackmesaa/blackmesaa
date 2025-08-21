@@ -1,6 +1,6 @@
 ##  😁 read this ! !
 
-   ![woh](https://64.media.tumblr.com/e7c24c28a0391894db220f4fb9dc05d4/6b194b5042573efe-18/s500x750/03c06ed1da98c2821011de1ee5e1ffeff9de3c00.pnj)                                [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=c56d1b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+   ![woh](https://64.media.tumblr.com/e7c24c28a0391894db220f4fb9dc05d4/6b194b5042573efe-18/s500x750/03c06ed1da98c2821011de1ee5e1ffeff9de3c00.pnj)                                [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=c56d1b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ## rules (′▽`〃)
 so yeah..as the thing says these are my ruels for interacting with me or
 stuff like that 😉
