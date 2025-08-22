@@ -5,13 +5,21 @@
 so yeah..as the thing says these are my ruels for interacting with me or
 stuff like that 😉
 
-DNC — do not copy my ponies, inspo is okay as long as if its minor
+DNC — do not copy my ponies, inspo is okay as long as if its minor. and i mean it PLEASE PLEASE dont copy my ponies someone tried to do this not that long ago and?? wow
 
 13- — I prefer to not talk to 13 year olds or younger as i am 15 myself🥲
 
 Roblox fandoms — alot of you guys are really strange but i shouldnt be saying anything . . you all are on thin ice
 
 C+H — welcomed and encouraged!!1 dont expect me to say anything though im terrible at talking
+
+friending – please dont friend me kf we dont talk first 😭 id like to get to know you more before friedning
+
+w2i - i tend to be offtab alot so if ya wanna start up a conversation please whisper me,, though im pretty bad at keep conversations (^_^;) i also might not see it due to my tab bar being closed often..
+
+booping etc - a-okay! booping wont get my attention though... kissing is also fine too
+
+hiding - i tend to hide people who cover me or my friends and their chats or just ponies.. i also hide randomly depending on if i like you or not soooouhyeah 
 
 and yeah thats really it , , look in my strawpage for more info please (´・ω・`) im open to makiing new friends and im really nice., message on me on discord if ya want ; asspancakez 
 
