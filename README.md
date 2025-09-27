@@ -23,7 +23,7 @@ booping etc - a-okay! booping wont get my attention though... kissing is also fi
 hiding - i tend to hide people who cover me or my friends and their chats or just ponies.. i also hide randomly depending on if i like you or not soooouhyeah 
 
 other stuff . .
-im a fictkin of jeff the killer / srs aaannd doubles arent really.. appreciated sorry 💔
+im a fictkin of jeff the killer / srs doubles iwvec..  💔
 
 and yeah thats really it , , look in my strawpage for more info please (´・ω・`) im open to makiing new friends and im really nice., message on me on discord if ya want ; asspancakez 
 
