@@ -5,6 +5,7 @@
    ![woh](https://64.media.tumblr.com/e68776c49f85380087a40345bbbda1b2/5f15165799e74c86-30/s500x750/b865957b8d6dce4c8e1dacfb6d39fec63aed7846.pnj)                               [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=c56d1b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ## rules (′▽`〃)
 [straw1](https://resonance-cascade.straw.page)  [straw2](https://bloodstuff.straw.page) [ata](https://godheadsilo.atabook.org/)
+layout changed sep.28th 2025
    
    DNC — do not copy my ponies, inspo is okay as long as if its minor. and i mean it PLEASE PLEASE dont copy my ponies someone tried to do this not that long ago and?? wow
 
