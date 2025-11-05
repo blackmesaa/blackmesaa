@@ -3,30 +3,10 @@
 
 ![](https://64.media.tumblr.com/e77c81ec81f5b3c022553ea467f091d8/3f276edd9a282d13-2d/s2048x3072/8a7dadd9334e4a2a94494baf405f3952fc7ec334.jpg)
    ![woh](https://64.media.tumblr.com/ae035e3699bc50b2d0a00d20776e44af/fd90dc8ec497eb2e-4c/s500x750/812a24a50579055d455bc7daad913d5eb964a2db.pnj)                               [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=c56d1b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-## rules (′▽`〃)
+##  (′▽`〃)
 [straw1](https://napoleonn.straw.page)  [straw2](https://bloodstuff.straw.page) [ata](https://godheadsilo.atabook.org/)
-layout changed sep.28th 2025
-   
-   DNC — do not copy my ponies, inspo is okay as long as if its minor. and i mean it PLEASE PLEASE dont copy my ponies someone tried to do this not that long ago and?? wow
 
-13- — I prefer to not talk to 13 year olds or younger as i am 15 myself🥲
-
-Roblox fandoms — alot of you guys are really strange but i shouldnt be saying anything . . you all are on thin ice
-
-C+H — welcomed and encouraged!!1 dont expect me to say anything though im terrible at talking
-
-friending – please dont friend me kf we dont talk first 😭 id like to get to know you more before friedning
-
-w2i - i tend to be offtab alot so if ya wanna start up a conversation please whisper me,, though im pretty bad at keep conversations (^_^;) i also might not see it due to my tab bar being closed often..
-
-booping etc - a-okay! booping wont get my attention though... kissing is also fine too
-
-hiding - i tend to hide people who cover me or my friends and their chats or just ponies.. i also hide randomly depending on if i like you or not soooouhyeah 
-
-other stuff . .
-im a fictkin of jeff the killer / srs doubles iwvec..  💔
-
-and yeah thats really it , , look in my strawpage for more info please (´・ω・`) im open to makiing new friends and im really nice., message on me on discord if ya want ; asspancakez 
+that guy on ponytown whos really into napoleon & valve games ... under 14 dni please (′ェ`)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=look+down+there+...;+its+my+STAMPS!!)](https://git.io/typing-svg)
 
