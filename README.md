@@ -2,7 +2,7 @@
 
 
 ![](https://64.media.tumblr.com/e77c81ec81f5b3c022553ea467f091d8/3f276edd9a282d13-2d/s2048x3072/8a7dadd9334e4a2a94494baf405f3952fc7ec334.jpg)
-![woh](https://64.media.tumblr.com/ae035e3699bc50b2d0a00d20776e44af/fd90dc8ec497eb2e-4c/s500x750/812a24a50579055d455bc7daad913d5eb964a2db.pnj)                               [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=c56d1b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![woh](https://64.media.tumblr.com/ebf792cf5cf2f8f0f22de6fa97385f68/8cf1b8a0476e2024-60/s500x750/6487b690c4738d6080931045898996684843ac01.pnj)                               [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=c56d1b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ##  
 [straw1](https://napoleonn.straw.page)  [straw2](https://bloodstuff.straw.page) [ata](https://godheadsilo.atabook.org/)
 
